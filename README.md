@@ -1,2 +1,2 @@
-# nammo-bday
-birthday of prettiest girl
+# wall-bday
+birthday of cute pippoo
